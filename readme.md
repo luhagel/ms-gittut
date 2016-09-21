@@ -1,3 +1,3 @@
 # Question One
 
-1. Who was your favourite teacher?
+1. Where did you go to school?
